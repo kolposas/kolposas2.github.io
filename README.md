@@ -1,1 +1,0 @@
-# kolposas2.github.io
